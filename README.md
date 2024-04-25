@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ChandlerFarnsworth
+- 👀 I’m interested in tons of things! Some of my hobbies are bouldering, golf, and working on my business, which specializes in social media management.
+- 🌱 I’m currently learning Computer Science
+- 📫 If you are interested in work, contact me via my LinkedIn. I look forward to hearing from you!
